@@ -1,1 +1,0 @@
-# historydaycolorado.github.io
